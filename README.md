@@ -1,16 +1,43 @@
-## Hi there 👋
+<h1 align="center">Hewo i am under the github please help me
 
-<!--
-**NukeNova/NukeNova** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+  <h6 style="border-bottom:none; padding-bottom:0; margin-bottom:0;">
+    Sayer of <a href="https://www.urbandictionary.com/define.php?term=funky">Funky</a>, 
+    <a href="https://www.merriam-webster.com/dictionary/maggot">Maggot</a>, and 
+    <a href="https://en.wiktionary.org/wiki/bleh">Bleh</a>
+  </h6>
+</div>
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+<h4 align="center"> Ranged top main (scum o' the earth)<br/></h4>
+
+<h4 align="center"> i do not know how to code but i do shit <br/></h4>
+
+######  [fuck you](https://zkillboard.com/kill/122519258/)
+
+
+
+## Hobbies:
+
+#### I [game](https://www.leagueoflegends.com/en-us/)
+
+#### i do [3d art](https://www.blender.org/)
+
+#### i do [linuxy](https://en.wikipedia.org/wiki/Linux)
+
+## "Skills":
+
+#### i know Croatian, English, German 
+
+#### I want to learn: Scandinavian, Finnish, Dutch
+
+#### I know morse code
+
+
+
+
+
