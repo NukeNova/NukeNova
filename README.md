@@ -13,7 +13,7 @@
 
 
 
-<h4 align="center"> Ranged top main (scum o' the earth)<br/></h4>
+<h4 align="center"> Jax top main (scum o' the earth)<br/></h4>
 
 <h4 align="center"> i do not know how to code but i do shit <br/></h4>
 
