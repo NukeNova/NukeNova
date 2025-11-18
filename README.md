@@ -29,13 +29,15 @@
 
 #### i do [linuxy](https://en.wikipedia.org/wiki/Linux)
 
-## "Skills":
+## Other stuff:
+
+#### I know morse code
 
 #### i know Croatian, English, German 
 
 #### I want to learn: Scandinavian, Finnish, Dutch
 
-#### I know morse code
+
 
 
 
